@@ -14,7 +14,7 @@
  
  <br>
  
-  ### Para encontrar minhas redes sociais,acesse os links abaixo!
+  ### Para me encontrar nas minhas redes sociais,acesse os links abaixo!
    
  
 <div> 
